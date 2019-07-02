@@ -1,1 +1,1 @@
-I'm a man.
+I'm a man.I'm also a hero.
